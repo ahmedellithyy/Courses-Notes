@@ -12,8 +12,10 @@
 - Prefely to be one page.
 - Check Resume Rubric.
 
+
 **Transferable Skills**
 It’s a skill you developed or gained in another company or in a club that you’re at college. These skills can be used in the job you apply for. Maybe like project management or leadership.
+
 
 **Bullet Points Tips**
 - It’s so important to divide what you have done in your life in bullets to show clearness in your work to be accessed by the reviewer quicker.
