@@ -13,7 +13,7 @@
 - Check Resume Rubric.
 
 
-**Transferable Skills**
+**Transferable Skills** </br>
 It’s a skill you developed or gained in another company or in a club that you’re at college. These skills can be used in the job you apply for. Maybe like project management or leadership.
 
 
